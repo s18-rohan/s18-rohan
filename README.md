@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rohan Yadav @s18-rohan
-- 👀 I’m interested in web devlopment, Ethical hacking, cp, wrestling, gyming and many more...
+- 👀 I’m interested in web devlopment, Ethical hacking, CP, wrestling, gyming and many more...
 - 🌱 I’m currently persuing B-tech in computer science in MGM's College of engineering, Nanded
 - 📫 How to reach me https://www.linkedin.com/in/rohan-yadav-b410841a9/
 
